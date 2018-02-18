@@ -1,2 +1,0 @@
-# webcensar.com
-comments G+
